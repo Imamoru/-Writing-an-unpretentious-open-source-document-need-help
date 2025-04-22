@@ -1,0 +1,2 @@
+`I am thrilled to introduce Immersive Dream, a non-invasive headset that will emerge from the contributions of internet users. I firmly believe this project must be carried out by the online community itself. From now on, anyone can contribute, regardless of their background or expertise.You can totally take the concept and improve it, correct mistakes on my part, or even market it as a VR headset for Internet users.`
+
